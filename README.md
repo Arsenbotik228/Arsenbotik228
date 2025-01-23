@@ -14,11 +14,11 @@
 
 ✉️ Как связаться со мной:
 
-Gmail: arsen.email@gmail.com
+Gmail: arsen.kalchoroev@gmail.com](mailto:arsen.kalchoroev@gmail.com)
 
-Telegram: @arsenkalchoro
+Telegram: [@lublukotyat228](https://t.me/@lublukotyat228)
 
-LinkedIn: linkedin.com/in/arsenkalchoro
+LinkedIn:[linkedin.com/in/arsen-kalchoroev-92b45531b](https://linkedin.com/in/arsen-kalchoroev-92b45531b)
 
 💼 Опыт работы:
 
