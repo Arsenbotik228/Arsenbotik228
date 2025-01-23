@@ -14,7 +14,7 @@
 
 ✉️ Как связаться со мной:
 
-Gmail: arsen.kalchoroev@gmail.com](mailto:arsen.kalchoroev@gmail.com)
+Gmail: arsen.kalchoroev@gmail.com
 
 Telegram: [@lublukotyat228](https://t.me/@lublukotyat228)
 
